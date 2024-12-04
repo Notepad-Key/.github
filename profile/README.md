@@ -1,4 +1,4 @@
-# > Notepad++ Crack 8.7.7 Crack with License Key [2025] Full Lifetime
+# > Notepad++ Crack 8.7.7 with License Key [2025] Full Lifetime
 
 Notepad++ Portable is a versatile and powerful text editor that allows users to edit and write code on the go. 
 It is a portable version of the popular Notepad++ software, which means that it can be run directly from a USB drive or other portable storage device without the need for installation.
